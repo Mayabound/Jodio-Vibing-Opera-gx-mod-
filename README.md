@@ -1,11 +1,14 @@
 # Jodio-Vibing-Opera-gx-mod-
-A mod i developed today , took me days but yeah ,It's was annyoing at the start to mod first time , but yeah it's done at last . I am Gwynb13idd , Gwynb13idd@proton.me,.  Video was made by B-TAE his yt link -www.youtube.com/@certae5285 ,he is sick with the visuals like am stunned every time ,i see his animations ..
+A mod i developed today , took me days but yeah ,It's was annyoing at the start to mod first time , but yeah it's done at last . I am just a developer   Video was made by B-TAE his yt link -www.youtube.com/@certae5285 ,he is sick with the visuals like am stunned every time ,i see his animations ..
 
 
 # Jodio Vibin  – Opera GX Mod
 
 🔗 **Download & Install Mod:**  
 [Click here to install via Opera GX Mod Store](https://store.gx.me/mods/mct3ku/jodio-vibin-to-his-opening-by-b-tae)
+
+176 downlaods as of now thx 
+<img width="1755" height="642" alt="image" src="https://github.com/user-attachments/assets/26a5b6db-f0dc-4843-b74d-6794433fad90" />
 
 A custom Opera GX theme featuring animation by Btae and music from “Make It Rain” (The JOJOLands OP 1) by Nico Bellisario.
 
